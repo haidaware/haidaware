@@ -13,4 +13,4 @@
 
 
 
-[atabook](starincrossed.atabook.org)‎‎ ‎ ‎ ‎ ୨ৎ‎ ‎ ‎ ‎ ﹫bimuza**ipirates** ${\color{#323745}\textsf{ᵒⁿ ᵈᶦˢᶜᵒʳᵈ}}$‎ ‎ ‎ ୨ৎ‎ ‎ ‎ ‎ [rentry](rentry.co/nolidestroy)
+<a href="https://starincrossed.atabook.org">atabook</a> ‎ ‎ ‎ ୨ৎ‎ ‎ ‎ ‎ ﹫bimuza**ipirates** ${\color{#323745}\textsf{ᵒⁿ ᵈᶦˢᶜᵒʳᵈ}}$‎ ‎ ‎ ୨ৎ‎ ‎ ‎ ‎ <a href="https://rentry.co/nolidestroy">rentry</a>

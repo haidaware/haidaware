@@ -9,6 +9,6 @@
 
 <img src="https://u.cubeupload.com/Dagasi/ccbUntitled442025122621.png" width="421">
 
-[atabook](starincrossed.atabook.org)‎‎ ‎ ‎ ‎ ୨ৎ‎ ‎ ‎ ‎ [rentry](starincrossed.atabook.org)‎ ‎ ‎ ‎ ୨ৎ‎ ‎ ‎ ‎ [cardd](starincrossed.atabook.org)‎ ‎ ‎ ‎ ୨ৎ‎ ‎ ‎ ‎ [atabook](starincrossed.atabook.org) ‎ ‎ ‎ ୨ৎ‎ ‎ ‎ ‎ ﹫bimuzaipirates
+[atabook](starincrossed.atabook.org)‎‎ ‎ ‎ ‎ ୨ৎ‎ ‎ ‎ ‎ [rentry](rentry.co/nolidestroy)‎ ‎ ‎ ‎ ୨ৎ‎ ‎ ‎ ‎ *﹫bimuza*ipirates ‎ ‎ ‎ ୨ৎ‎ ‎ ‎ ‎ [strawpage]() 
 
 **──── 𓏵 ────**

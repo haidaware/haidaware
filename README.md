@@ -7,6 +7,8 @@
  𝕭ᵘᵗ 𝑒ᵥ𝑒𝓃 𝒂 <img src="https://u.cubeupload.com/Dagasi/Untitled442025122617.png" width="45"> 𝑓𝑎𝒹𝑒𝓈
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ***𝑺𝓸 ˡ𝔢𝔱 ₘ𝑒 𝓯ᵣₑₑ***
 
+mío. dagasi. he / him.
+
 <img src="https://u.cubeupload.com/Dagasi/ccbUntitled442025122621.png" width="421">
 
 **──── 𓏵 ────**

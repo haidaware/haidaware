@@ -7,7 +7,7 @@
  𝕭ᵘᵗ 𝑒ᵥ𝑒𝓃 𝒂 <img src="https://u.cubeupload.com/Dagasi/Untitled442025122617.png" width="45"> 𝑓𝑎𝒹𝑒𝓈
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ***𝑺𝓸 ˡ𝔢𝔱 ₘ𝑒 𝓯ᵣₑₑ***
 
-**あ ‎ 𝙈𝖎𝖔**‎‎  ‎ ‎ ‎ ‎𝑫𝖆𝖌𝖆𝖘𝖎。 ‎ ‎  ‎ ‎ ${\color{#323745}\textsf{𔓕}}$ ‎ ‎ ‎ ‎‎ ‎  ℎ𝑒 / ℎ𝑖𝑚. ‎ ‎  ‎ ‎ ${\color{#323745}\textsf{𔓕}}$ ‎ ‎ ‎ ‎‎ ‎   sign ata ‎ ‎  ‎ ‎ ${\color{#323745}\textsf{𔓕}}$ ‎ ‎ ‎ ‎‎ ‎   c * h freely
+**. ‎◞ 𝙈𝖎𝖔**‎‎  ‎ ‎ ‎ ‎𝑫*𝖆𝖌𝖆*𝖘𝖎。 ‎ ‎  ‎ ‎ ${\color{#323745}\textsf{𔓕}}$ ‎ ‎ ‎ ‎‎ ‎  ℎ*𝑒 / ℎ𝑖𝑚*. ‎ ‎  ‎ ‎ ${\color{#323745}\textsf{𔓕}}$ ‎ ‎ ‎ ‎‎ ‎   s*ign a*ta ‎ ‎  ‎ ‎ ${\color{#323745}\textsf{𔓕}}$ ‎ ‎ ‎ ‎‎ ‎   c * h fre*ely*
 
 <img src="https://u.cubeupload.com/Dagasi/ccbUntitled442025122621.png" width="421">
 

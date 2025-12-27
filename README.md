@@ -4,6 +4,7 @@
 
  <img src="https://u.cubeupload.com/Dagasi/Untitled442025122601.png" width="505">
  
-${\textsf{\color{#B5AAA4}𝕭ᵘᵗ 𝑒ᵥ𝑒𝓃 𝒂 𝖗𝖔𝔰𝔢 }}$ <img src="https://u.cubeupload.com/Dagasi/Untitled442025122617.png" width="45">  ${\textsf{\color{#B5AAA4}𝑓𝑎𝒹𝑒𝓈 , }}$ ***𝑺𝓸 ˡ𝔢𝔱 ₘ𝑒 𝓯ᵣₑₑ***
+ 𝕭ᵘᵗ 𝑒ᵥ𝑒𝓃 𝒂 <img src="https://u.cubeupload.com/Dagasi/Untitled442025122617.png" width="45"> 𝑓𝑎𝒹𝑒𝓈
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ***𝑺𝓸 ˡ𝔢𝔱 ₘ𝑒 𝓯ᵣₑₑ***
 
-**─ ──── ୨୧ ──── ─ ─**─
+<img src="https://u.cubeupload.com/Dagasi/ccbUntitled442025122621.png" width="421">

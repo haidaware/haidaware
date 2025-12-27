@@ -8,3 +8,5 @@
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ***𝑺𝓸 ˡ𝔢𝔱 ₘ𝑒 𝓯ᵣₑₑ***
 
 <img src="https://u.cubeupload.com/Dagasi/ccbUntitled442025122621.png" width="421">
+
+[atabook](starincrossed.atabook.org)‎ ‎ ‎ ‎ ୨ৎ‎ ‎ ‎ ‎ [atabook](starincrossed.atabook.org) . [atabook](starincrossed.atabook.org)‎[atabook](starincrossed.atabook.org)

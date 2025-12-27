@@ -4,6 +4,6 @@
 
  <img src="https://u.cubeupload.com/Dagasi/Untitled442025122601.png" width="505">
  
-${\textsf{\color{#B5AAA4}𝕭ᵘᵗ 𝑒ᵥ𝑒𝓃 𝒂 𝖗𝖔𝔰𝔢 𝑓𝑎𝒹𝑒𝓈 }}$ <img src="https://u.cubeupload.com/Dagasi/Untitled442025122617.png" width="45">  ${\textsf{\color{#B5AAA4}𝔣𝔞𝔡𝔢𝔰 , }}$ ***𝑺𝓸 ˡ𝔢𝔱 ₘ𝑒 𝓯ᵣₑₑ***
+${\textsf{\color{#B5AAA4}𝕭ᵘᵗ 𝑒ᵥ𝑒𝓃 𝒂 𝖗𝖔𝔰𝔢 }}$ <img src="https://u.cubeupload.com/Dagasi/Untitled442025122617.png" width="45">  ${\textsf{\color{#B5AAA4}𝑓𝑎𝒹𝑒𝓈 , }}$ ***𝑺𝓸 ˡ𝔢𝔱 ₘ𝑒 𝓯ᵣₑₑ***
 
 **─ ──── ୨୧ ──── ─ ─**─

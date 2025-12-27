@@ -7,11 +7,11 @@
  𝕭ᵘᵗ 𝑒ᵥ𝑒𝓃 𝒂 <img src="https://u.cubeupload.com/Dagasi/Untitled442025122617.png" width="45"> 𝑓𝑎𝒹𝑒𝓈
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ***𝑺𝓸 ˡ𝔢𝔱 ₘ𝑒 𝓯ᵣₑₑ***
 
-mio · dagasi‎ ‎  ‎ ‎ 𔓕 ‎ ‎ ‎ ‎ he / him.
+**あ ‎ mio**‎‎  ‎ ‎ ‎ ‎ だがし。 ‎ ‎  ‎ ‎ 𔓕 ‎ ‎ ‎ ‎‎ ‎  he / him. ‎ ‎  ‎ ‎ 𔓕 ‎ ‎ ‎ ‎‎ ‎   sign ata
 
 <img src="https://u.cubeupload.com/Dagasi/ccbUntitled442025122621.png" width="421">
 
-**──── 𓏵 ────**
+
 
 [atabook](starincrossed.atabook.org)‎‎ ‎ ‎ ‎ ୨ৎ‎ ‎ ‎ ‎ ﹫bimuzaipirates ‎ ‎ ‎ ୨ৎ‎ ‎ ‎ ‎ [rentry](rentry.co/nolidestroy)‎
 
